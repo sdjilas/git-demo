@@ -6,3 +6,9 @@ This is the first file in this repo.
 
 So familiar and overwhelmingly warm
 This one, this form I hold now
+
+Embracing you, this reality here
+This one, this form I hold now, so
+Wide eyed and hopeful
+
+
